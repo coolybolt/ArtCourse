@@ -8,7 +8,7 @@ Art curriculum, based on this [post](https://www.reddit.com/r/learnart/comments/
 
 [] [🆓 Proko](https://www.youtube.com/playlist?list=PLR2KBLDDnZz3Ec8LZ66IDS--P9g3TdwOM)
 
-> [] Challenge: 30 days of gesture sessions with [croquis cafe](https://vimeo.com/croquiscafe) and/or [draw this](https://www.youtube.com/channel/UCOVNvkn-f6BW18AvplWI8YA)
+> [] Challenge: 30 days of gesture sessions with [draw this]([https://www.youtube.com/channel/UCOVNvkn-f6BW18AvplWI8YA](https://straykeyframe.com/do-the-one-month-gesture-drawing-challenge-includes-tutorial))
 
 ## Perspective 1
 
