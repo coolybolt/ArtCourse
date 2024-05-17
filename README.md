@@ -8,7 +8,7 @@ Art curriculum, based on this [post](https://www.brendanmeachen.com/soloartist) 
 
 [] [🆓 Proko](https://www.youtube.com/playlist?list=PLR2KBLDDnZz3Ec8LZ66IDS--P9g3TdwOM)
 
-> [] Challenge: 30 days of gesture sessions with [draw this](https://straykeyframe.com/do-the-one-month-gesture-drawing-challenge-includes-tutorial)
+> [] Challenge: 30 days of gesture sessions with [[draw this]([url](https://straykeyframe.com/do-the-one-month-gesture-drawing-challenge-includes-tutorial)
 
 ## Perspective 1
 
