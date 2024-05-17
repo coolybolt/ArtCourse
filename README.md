@@ -46,7 +46,7 @@ Art curriculum, based on this [post](https://www.brendanmeachen.com/soloartist) 
 
 [] [💵 The Frank Reilly Drawing Method, Frank Reilly](https://www.nma.art/courses/the-frank-reilly-drawing-method/)
 
-> [] [Ahmed Aldoori's 100 head challenge](https://www.youtube.com/watch?v=0A_kQsxeeTE), [heads are here](https://www.pinterest.com/aaldoori/portrait/)
+> [] Challenge: [Ahmed Aldoori's 100 head challenge](https://www.youtube.com/watch?v=0A_kQsxeeTE), [heads are here](https://www.pinterest.com/aaldoori/portrait/)
 
 ## Perspective 2
 
